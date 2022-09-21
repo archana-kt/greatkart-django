@@ -1,3 +1,0 @@
-Archana
-
-This is sample
